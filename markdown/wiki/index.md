@@ -1,3 +1,4 @@
+Spirit de computador ehshwx shivi lo
 
 # Welcome to the PojavLauncher Wiki!
 ____
